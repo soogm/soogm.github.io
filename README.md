@@ -1,1 +1,0 @@
-# soogm.github.io
